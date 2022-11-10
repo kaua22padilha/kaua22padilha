@@ -1,14 +1,14 @@
    Salve ✌
 
-◾ Sou o Kaua Alexandre Padilha dos Santos.
+◾ Sou o Kaua Alexandre Padilha dos Santos 😀
 
-◾ Tenho 15 anos de idade.
+◾ Tenho 15 anos de idade 😲
 
-◾ Torço para o Corinthians.
+◾ Torço para o Corinthians 🖤🤍🖤
 
-◾ Sou etudante do 1°B do Colégio Estadual "Victor Bussmann'.
+◾ Sou etudante do 1°B do Colégio Estadual "Victor Bussmann" 📚
 
-◾ Meus hobbies são: jogar futebol e assistir séries
+◾ Meus hobbies são: jogar futebol e assistir séries 😴
 
 
 ![image](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white")
