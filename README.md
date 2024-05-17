@@ -2,11 +2,11 @@
 
 ◾ Sou o Kaua Alexandre Padilha dos Santos 😀
 
-◾ Tenho 15 anos de idade 😲
+◾ Tenho 17 anos de idade 😲
 
 ◾ Torço para o Corinthians 🖤🤍🖤
 
-◾ Sou etudante do 1°B do Colégio Estadual "Victor Bussmann" 📚
+◾ Sou etudante do 3°B do Colégio Estadual "Victor Bussmann" 📚
 
 ◾ Meus hobbies são: jogar futebol e assistir séries 😴
 
